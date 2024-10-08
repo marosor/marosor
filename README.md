@@ -9,4 +9,4 @@ Pero ambos mundos no tienen por qué estar reñidos, y eso es lo que quiero demo
 - 🤔 Algunas cuestiones que captan mi atención tienen que ver con algoritmos no supervisados, con sesgos y ética, y con el lenguaje.
 - 💬 Contáctame si tienes inquietudes similares. Hay un apasionante mundo por descubrir y construir, y qué mejor que recorrer este camino en compañía!
 - 📫 Me puedes escribir a marcerosemberg@gmail.com
-- ⚡ Fun fact: si no esty¡oy frente al ordenador seguramente me encontrarás por festivales o exposiciones, o dando un paseo. Y reconozco que soy un poco adicta al queso.
+- ⚡ Fun fact: si no estoy frente al ordenador seguramente me encontrarás por festivales o exposiciones, o dando un paseo. Y reconozco que soy un poco adicta al queso.
